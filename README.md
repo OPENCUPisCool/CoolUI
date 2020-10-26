@@ -1,2 +1,2 @@
 # CoolUI
-This is just a roblox game GUI
+This is just gamer thing no steal pls
